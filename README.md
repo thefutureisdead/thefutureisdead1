@@ -14,7 +14,7 @@
 
 <div align="center">
    <img src="https://i.postimg.cc/50sVXzsq/In-Shot-20261112-052350462.png"
-             width="100%"> 
+             width="500"> 
 
 
 <p align="center">
@@ -30,7 +30,7 @@
 
 <div align="center">
    <img src="https://i.postimg.cc/nhSBGSMv/In-Shot-20261112-051421492.png"
-             width="100%"> 
+             width="500"> 
 
 
 <p align="center">
@@ -47,7 +47,7 @@
 <td align="center">
 
 <details>
-<summary><b>Infos!!</b></summary>
+<summary><b>pt infos!! #read </b></summary>
 
 <br>
 
@@ -70,7 +70,11 @@ to whisper instead!!
 
 im VERY OKEY with ships!! every ship 
 is good as long as its not 
-toxic/problematic/dark/pro ship!  
+toxic/problematic/dark/pro ship! 
+
+SOMETIMES on offline mod, plz no i did not unfriend all, i don't send friend requests at all and i do not unfriend someone if they added me. 
+
+i change my readme A LOT! it will always be one of these characters: Sonic / Silver / Nicky 
 
 if you wanna know more just check my strawpage!(im remakin it soon) 
 
