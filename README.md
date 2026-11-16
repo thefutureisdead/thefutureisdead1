@@ -72,7 +72,7 @@ im VERY OKEY with ships!! every ship
 is good as long as its not 
 toxic/problematic/dark/pro ship! 
 
-SOMETIMES on offline mod, plz no i did not unfriend all, i don't send friend requests at all and i do not unfriend someone if they added me. 
+SOMETIMES on offline mod, plz no i did not unfriend you, i don't send friend requests at all and i do not unfriend someone if they added me. 
 
 i change my readme A LOT! it will always be one of these characters: Sonic / Silver / Nicky 
 
